@@ -1,0 +1,2 @@
+# Plant-Care-and-Green-Space-Design
+Our website specializing in "plant care and green space design" offers a comprehensive range of services to help individuals and businesses create and maintain beautiful, thriving indoor and outdoor green spaces. This encompasses everything from selecting the right plants for specific environments to designing aesthetically pleasing landscapes and providing ongoing plant care and maintenance.
